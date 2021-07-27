@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Drunksie
+- 📫 How to reach me: Discord - Drunksie#1120
